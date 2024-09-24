@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my Sr and Other Students
 - 📫 How to reach me just add me on FB JP Lucena ...
 - 😄 Pronouns: JP
-- ⚡ Fun fact: Nonchalant, Slow Learnet
+- ⚡ Fun fact: Nonchalant, Slow Learner
 
 <!---
 JPLucena047/JPLucena047 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
